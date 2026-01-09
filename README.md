@@ -1,6 +1,8 @@
-Download link ===>>> https://www.transfernow.net/dl/20260107VfW9O1tP
-If you click this link, you will see 1.5G size of zip file(Whisper.zip).
+`Update Date: 2026-01-09`
 
-This zip file includes source code, 3 pdf files, and bin files.
+Download link ===>>> https://www.transfernow.net/dl/20260109EozM5z3K
+If you click this link, you will see 310M size of zip file(10.zip).
 
- This link will be expired after 14th Jan.
+This zip file includes 69 PDF files under 4 folders.
+
+ This link will be expired after 16th Jan.
