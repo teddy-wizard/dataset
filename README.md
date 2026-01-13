@@ -8,4 +8,8 @@ This zip file includes Chinese 14 PDF files. (This link will be expired after 19
 
 Download link ===>>> https://github.com/code-crafter365/forest/archive/refs/heads/main.zip (16.8M)
 
+Download link ===>>> https://sendgb.com/CGKpkm9wH1M (58.2M)
+This zip file includes English 21 PDF files. (This link will be expired after 20th Jan)
+
+
 
