@@ -6,11 +6,13 @@ Journal Submission Guidelines & Sample manuscripts: 52.2 MB (55 PDF & DOC files,
 
 Download link ===>>> https://sendgb.com/P0Tq2WGD7cw
 
+Wiley bibs: 89.09MB (224 folders, 83585 txt files)
+
+Download link ===>>> https://sendgb.com/wuS0tgElxdj
+
 Google Chrome Setup file: 134M (1 exe file)
 
 Download link ===>>> https://sendgb.com/atqnI5Hs2le
-
-
 
 
 
