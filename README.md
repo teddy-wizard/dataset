@@ -22,3 +22,7 @@ ISSN DB add-on: 18 KB (2 SQL files)
 
 Download link ===>>> https://sendgb.com/EapIb07ZVxn
 
+Nano science and technology: 26 MB (2 pdf files)
+
+Download link ===>>> https://www.transfernow.net/dl/20260219hRLkxDDc
+
