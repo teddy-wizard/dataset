@@ -2,7 +2,7 @@ Please download all links!!!
 
 `Update Date: 2026-03-03`
 
-Journals, Ontology, Glutamate: 29M
+Journals & Glutamate Data: 29 MB
 
 https://www.transfernow.net/dl/20260302g06VR6zw
 
