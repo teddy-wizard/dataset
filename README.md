@@ -13,6 +13,15 @@ CDF Simulation and multimedia communication (3 pdfs)
 
 Download Link ==> https://www.transfernow.net/dl/202603178KGdaf98
 
+Journal guideline, template, and sample paper: (21 pdfs)
+
+Download Link ==> https://sendgb.com/R5KLUOTxaZ6
+
+Project source code (440 MB)
+
+Download Link ==> https://sendgb.com/mx9H04npyWr
+
+
 |
 |
 |
