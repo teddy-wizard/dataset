@@ -9,6 +9,12 @@ Reference checker project: 73.5 MB (1 zip file)
 
 Download Link ==> https://sendgb.com/5I91Yi2J7cg
 
+CDF Simulation and multimedia communication (3 pdfs)
+
+Download Link ==> https://www.transfernow.net/dl/202603178KGdaf98
+
+
+
 
 
 
