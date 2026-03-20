@@ -2,7 +2,7 @@
 
 Dataset (urgent) : 8 MB (pdf files)
 
-Download Link ==> datasheet.zip
+Download Link ==> https://github.com/teddy-wizard/dataset/blob/main/datasheet.zip
 
 Journal Submission Guidelines & Sample manuscripts: 70.4 MB (1 zip file)
 
