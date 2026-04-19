@@ -1,15 +1,10 @@
-`Update Date: 2026-04-06`
+`Update Date: 2026-04-21`
 
-Jetson AGX & DP-HDMI, DP-VGA datasheet & manual: 6 MB (pdf files)
+Offline Transcribe - Model and Windows EXE files (60 MB)
 
-Download Link ==> https://sendgb.com/gjaEIzb0Lf2
-
-
-Journal Guide line, Germanic Grammar, Plagiarism Detection Research, Source Code, Audio-To-Text Program: 266 MB (PDF files, source code)
-
-Download Link ==> https://sendgb.com/NA1qSUt0urM
+Download Link ===> https://sendgb.com/mCwdRYW8I9H
 
 
-SCI bibs: 51.4 MB (68905 bibtex files as one zip file, 1 report XLSX file)
+In/Out System Source Code (87 MB)
 
-Download Link ==> https://sendgb.com/j9ESVK7x8mP
+Download Link ===> https://sendgb.com/6JNFmLjnHMr
