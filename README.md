@@ -1,4 +1,4 @@
-`Update Date: 2026-05-18`
+`Update Date: 2026-05-26`
 
 - Journal Submission Guidelines & Sample manuscripts: 65.4 MB (1 zip file) ===> https://sendgb.com/wNRfyaE0lhj
 
