@@ -1,8 +1,6 @@
-`Update Date: 2026-05-26`
+`Update Date: 2026-06-22`
 
-- Journal Submission Guidelines & Sample manuscripts: 497 KB (1 zip file) ===> https://sendgb.com/6G4NL8DF1Ma
-- bibtex service system: 83 MB (1 zip file) ===> https://sendgb.com/QDcwuyVt1Wz
-- Journal Submission Guidelines & Sample manuscripts: 563 KB (1 zip file) ===> https://sendgb.com/h3zfStC7xwi
-- Bootstrap 5 Guide: 6.75 MB (1 pdf, 1 zip file) ===> https://sendgb.com/pOB3sh7yiU1
+- Journal Submission Guidelines & Sample manuscripts: 6.6 MB (1 zip file) ===> https://sendgb.com/6boJMzH0C9j
+- Chip Dataset & Journal Guidelines & Code: 130.6 MB (5 zip, 1 pdf file) ===> https://sendgb.com/CodOS1iLzTg
 
  
