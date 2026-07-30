@@ -1,6 +1,7 @@
 `Update Date: 2026-07-21`
 
 - JCR 2026 List (11 MB - 3 excel files, 2 pdf files) ===> https://sendgb.com/lRTrDOw6omB
+- 3 guideline and jcr journal list 4 files ===> https://sendgb.com/SwD271icqHm
 
 `Update Date: 2026-07-29`
 
