@@ -5,6 +5,7 @@
 
 `Update Date: 2026-07-29`
 
+- HM233D datasheet(1 pdf) ===> https://sendgb.com/AlcbImDxzKs
 - Guidleline & Sample papers (1 zip - 4 issns, 11 MB) ===> https://sendgb.com/Yw8eRmPNayo
 - Java jar files (37 MB, 87 jar files) ===> https://sendgb.com/fqibCZWSmAn
 - Datasheet and paper (36.2 MB - 20 pdf files) ===> https://sendgb.com/K5IvnX9ARf6
