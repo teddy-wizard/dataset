@@ -4,4 +4,4 @@
 
 - Bibtex service system (100.1 MB, 1 zip file) ===> https://sendgb.com/vsoSw9O5Hu8
 
-- Jar file ===> https://sendgb.com/5YmTtxXu4ap
+- Jar file (1 MB, 2 jar files) ===> https://sendgb.com/5YmTtxXu4ap
