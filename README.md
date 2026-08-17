@@ -1,7 +1,3 @@
-`Update Date: 2026-08-11`
+`Update Date: 2026-08-17`
 
-- Wave Buoy (16 MB, 8 pdf files) ===> https://sendgb.com/6exbDZQIy8v
-
-- Bibtex service system (100.1 MB, 1 zip file) ===> https://sendgb.com/vsoSw9O5Hu8
-
-- Jar file (1 MB, 2 jar files) ===> https://sendgb.com/5YmTtxXu4ap
+- Spring project (93 MB, 1 zip file) ===> https://www.sendgb.com/fqlraMVoAxw
