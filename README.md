@@ -1,3 +1,3 @@
-`Update Date: 2026-08-17`
+`Update Date: 2026-08-26`
 
-- Spring project (93 MB, 1 zip file) ===> https://www.sendgb.com/fqlraMVoAxw
+- EI index data (5 MB, 1 xlsx file) ===> https://www.sendgb.com/zHbCp5jlgt4
