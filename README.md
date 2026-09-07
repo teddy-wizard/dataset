@@ -5,5 +5,6 @@
 - Smart e-library paper (1 pdf) ===> https://github.com/teddy-wizard/dataset/blob/main/Smart%20E-Library%20with%20AI-Based%20Personalized%20Recommendations.pdf
 - locomotive data (53 MB, 15 pdf files) ===> https://www.sendgb.com/5H8jz7mZPxJ
 - GPS data (2.7M, 3 pdf files) ===> https://www.sendgb.com/jbDWoA9gCiG
-- Deform Simulation Data: 139M (23 pdf files) ===> https://www.sendgb.com/94cXo1fqQ4a
+- Deform Simulation Data (139MB, 23 pdf files) ===> https://www.sendgb.com/94cXo1fqQ4a
+- Die Profile Data (18MB, pdf files) ===> https://www.sendgb.com/en/download/BFut7zWTJIm
 - Inout System: 1.13M (code files) ===> https://www.sendgb.com/t7Aj2uPJjhK
