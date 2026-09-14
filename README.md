@@ -1,3 +1,10 @@
+`Update Date: 2026-09-15`
+- Bibtex service system: 100.1 MB (1 zip file) ===> https://www.sendgb.com/8op7OesTcX0
+- Datasheet (13 pdf files) ===> https://github.com/solutionprovider9174/datasheet
+- Guideline & Sample articles (1zip - 1 issn, 1.4 MB) ===> https://www.sendgb.com/PxRb9jArIEF
+- Deform & Die Profile & Electrode data (1 zip - 16 PDFs, 55.6 MB) ===> https://www.sendgb.com/kDjKePzrPB6
+- CrossRef bibs: (1 zip, 976 folders, 225MB) ===> https://www.sendgb.com/i04oge5ny2d
+
 `Update Date: 2026-09-07`
 
 - Bibtex service system: 100.1 MB (1 zip file) ===> https://www.sendgb.com/8op7OesTcX0
