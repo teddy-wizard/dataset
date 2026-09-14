@@ -4,6 +4,7 @@
 - Guideline & Sample articles (1zip - 1 issn, 1.4 MB) ===> https://www.sendgb.com/PxRb9jArIEF
 - Deform & Die Profile & Electrode data (1 zip - 16 PDFs, 55.6 MB) ===> https://www.sendgb.com/kDjKePzrPB6
 - CrossRef bibs: (1 zip, 976 folders, 225MB) ===> https://www.sendgb.com/i04oge5ny2d
+- Hibernate document (1 pdf, 1 txt, 174M) ===> https://www.sendgb.com/2kP5kQnfoSQ
 
 `Update Date: 2026-09-07`
 
