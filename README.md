@@ -1,3 +1,3 @@
-`Update Date: 2026-09-28`
-- Inout System (2 zip, 132MB) ===> https://www.sendgb.com/L8G2jr7S9ku
+`Update Date: 2026-10-06`
+- Java Documentation (1 pdf, 21MB) ===> https://www.sendgb.com/vO05StnHCXF
 
