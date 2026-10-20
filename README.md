@@ -1,4 +1,4 @@
-`Update Date: 2026-10-13`
-- ANSI Data(3 pdfs, 6MB) ===> https://www.sendgb.com/BpAnYkj8RvX
-- Java Documentation (1 pdf, 21MB) ===> https://www.sendgb.com/vO05StnHCXF
-- Mining Quality Estimation (pdf, essay files, 72MB) ===> https://www.sendgb.com/sJbIHuwVPPx
+`Update Date: 2026-10-20`
+- Guideline & Sample articles (1 zip - 1 issn, 0.5MB) ===> https://www.sendgb.com/bPO3gJiLT4I
+- MIMO-OFDM data (1 zip - 6 pdfs, 2 source code, 7.4 MB) ===> https://www.sendgb.com/zMr7iHn9BaI
+- 
